@@ -14,7 +14,7 @@
 ⋆｡°✩
 </p>
 
-## ✩ Display Status's on Pony Town
+## ✩ Display Status on Pony Town
 <p align="center">
   <img src="https://img.shields.io/badge/Online-〇-4b9953?style=flat-square&logo=psychology&logoColor=white" />
 </p>
