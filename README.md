@@ -1,4 +1,4 @@
-## I Smash Buttons and Pretend I Know What I'm Doing
+## ✩ I Smash Buttons and Pretend I Know What I'm Doing
 
 <p align="center" width="100%">
     <img src="https://komarev.com/ghpvc/?username=MIKALJI&style=for-the-badge&label=❀.ೃ࿔&color=a1cdd1"> 
@@ -13,7 +13,7 @@
 ⋆｡°✩
 </p>
 
-## Status's on Pony Town
+## ✩ Display Status's on Pony Town
 <p align="center">
   <img src="https://img.shields.io/badge/Online-〇-4b9953?style=flat-square&logo=psychology&logoColor=white" />
 </p>
