@@ -5,7 +5,7 @@
 </p>
  
 <p align="center">
- <image src="https://github.com/user-attachments/assets/31e06668-4141-4c5b-ab84-5ceee4a532a2">
+ <image src="https://github.com/user-attachments/assets/5670121e-e314-44af-a470-d72cbe643196">
 </p>
 
 > *"Period, the reversal of Finality."*
