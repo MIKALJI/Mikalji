@@ -20,7 +20,7 @@
 * **KR and English Only**
 
 <p align="center">
- <image src="https://github.com/user-attachments/assets/be1ca9af-e8dd-4e08-b21d-d6b10aaf908c">
+ <image src="https://github.com/user-attachments/assets/3226b155-f388-46c4-a8e8-29fdf2a22d68">
 
 </p>
 
@@ -36,5 +36,5 @@
 </p>
 
 <p align="center">
- <image src="https://github.com/user-attachments/assets/07e9e54e-b2e9-4e0e-9700-d81d6a1d9d7b">
+ <image src="https://github.com/user-attachments/assets/ac732301-6166-4a6e-8d6b-96cba54c0dd1">
 </p>
