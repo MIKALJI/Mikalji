@@ -1,7 +1,7 @@
 ## ✩ "Come With Me, Endmin."
 
 <p align="center" width="100%">
-    <img src="https://komarev.com/ghpvc/?username=MIKALJI&style=for-the-badge&label=❀.ೃ࿔&color=a1cdd1"> 
+    <img src="https://komarev.com/ghpvc/?username=MIKALJI&style=for-the-badge&label=❀.ೃ࿔&color=687CD2"> 
 </p>
  
 <p align="center">
