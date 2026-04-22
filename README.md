@@ -1,11 +1,11 @@
-## ✩ I Smash Buttons and Pretend I Know What I'm Doing
+## ✩ "Come With Me, Endmin."
 
 <p align="center" width="100%">
     <img src="https://komarev.com/ghpvc/?username=MIKALJI&style=for-the-badge&label=❀.ೃ࿔&color=a1cdd1"> 
 </p>
  
 <p align="center">
- <image src="https://github.com/user-attachments/assets/5670121e-e314-44af-a470-d72cbe643196">
+ <image src="https://github.com/user-attachments/assets/de301632-7e0f-4e73-9425-fdad0a73dd40">
 </p>
 
 > *"Period, the reversal of Finality."*
@@ -20,7 +20,8 @@
 * **KR and English Only**
 
 <p align="center">
- <image src="https://github.com/user-attachments/assets/cc524b35-c02e-4e64-9ea9-3b84477b53e4">
+ <image src="https://github.com/user-attachments/assets/be1ca9af-e8dd-4e08-b21d-d6b10aaf908c">
+
 </p>
 
 ## ✩ Display Status on Pony Town
@@ -35,5 +36,5 @@
 </p>
 
 <p align="center">
- <image src="https://github.com/user-attachments/assets/5d09fb23-d4aa-477c-a7c2-93258dfc0523">
+ <image src="https://github.com/user-attachments/assets/07e9e54e-b2e9-4e0e-9700-d81d6a1d9d7b">
 </p>
