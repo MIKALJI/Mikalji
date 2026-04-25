@@ -20,7 +20,8 @@
 * **KR and English Only**
 
 <p align="center">
- <image src="https://github.com/user-attachments/assets/3226b155-f388-46c4-a8e8-29fdf2a22d68">
+ <img src="https://github.com/user-attachments/assets/caab8398-7db4-4dbf-bd9a-4470a148d6e0"/>
+
 
 </p>
 
