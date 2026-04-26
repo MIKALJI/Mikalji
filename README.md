@@ -19,6 +19,7 @@
 * **Minors IWC/IWEC as I'm 18+**
 * **KR and English Only**
 * **Please do not Copy my ponies or Inspo hard on them**
+* **If I'm doing something and it bothers you. Tell me. I can't read minds or body language over a device. I wish I could.**
 
 <p align="center">
  <img src="https://github.com/user-attachments/assets/caab8398-7db4-4dbf-bd9a-4470a148d6e0"/>
