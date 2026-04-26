@@ -18,6 +18,7 @@
 * **No Major DNI**
 * **Minors IWC/IWEC as I'm 18+**
 * **KR and English Only**
+* **Please do not Copy my ponies or Inspo hard on them**
 
 <p align="center">
  <img src="https://github.com/user-attachments/assets/caab8398-7db4-4dbf-bd9a-4470a148d6e0"/>
