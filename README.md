@@ -18,7 +18,7 @@
 * **No Major DNI**
 * **Minors IWC/IWEC as I'm 18+**
 * **KR and English Only**
-* **Please do not Copy my ponies or Inspo hard on them**
+* **Please do not Copy my ponies or Inspo hard on them.** ***I have Two Styles (Saturated and "Emo" as my friends call it)***
 * **I will not be the first to interact, as I've been having social anxiety lately.**
 * **If I'm doing something and it bothers you. Tell me. I can't read minds or body language over a device. I wish I could.**
 
