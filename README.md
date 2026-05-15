@@ -26,6 +26,7 @@
 <p align="center">
  <img src="https://github.com/user-attachments/assets/caab8398-7db4-4dbf-bd9a-4470a148d6e0"/>
 
+> "They called me Pasha."
 
 </p>
 
@@ -42,4 +43,7 @@
 
 <p align="center">
  <image src="https://github.com/user-attachments/assets/ac732301-6166-4a6e-8d6b-96cba54c0dd1">
+
+> “The final Lord I served."
+
 </p>
