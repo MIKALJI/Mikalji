@@ -28,6 +28,8 @@
 
 > "They called me Pasha."
 
+<p align="center">
+⋆｡°✩
 </p>
 
 ## ✩ Display Status on Pony Town
@@ -46,4 +48,6 @@
 
 > “The final Lord I served."
 
+<p align="center">
+⋆｡°✩
 </p>
