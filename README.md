@@ -22,7 +22,7 @@
 * **I will not be the first to interact, as I've lately been having social anxiety.**
 * **Do not drag me into drama that isn't about me. It's not mine to begin with. That being said,** ***do not start drama with me*** **that is about my friends or oomf-in-laws. I'm not them, they're responsible for their own behaviors. I'm also not responsible for their actions.**
 *  **If I'm doing something and it bothers you. Tell me. I can't read minds or body language over a device. I wish I could.**
-* **I Hide Freely** it's usually 15min to 24hrs. If it's perma hide, don't ask to be removed. It's for a damn good reason. I do clear out perm hides once in awhile.
+* **I Hide Freely** it's usually 15min to 24hrs.
 
 <p align="center">
  <img src="https://github.com/user-attachments/assets/caab8398-7db4-4dbf-bd9a-4470a148d6e0"/>
