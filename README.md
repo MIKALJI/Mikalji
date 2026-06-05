@@ -17,9 +17,9 @@
 ## ✩ Quick Overview
 * **No Major DNI**
 * **Minors IWC/IWEC as I'm 18+**
-* **KR and English Only**
+* **English Only**
+* **LINK CLICK and ARKNIGHTS FANS PLS INT!**
 * **Please do not Copy my ponies or Inspo hard on them.** ***I have Two Styles (Saturated and "Emo" as my friends call it)***
-* **I will not be the first to interact, as I've lately been having social anxiety.**
 * **Do not drag me into drama that isn't about me. It's not mine to begin with. That being said,** ***do not start drama with me*** **that is about my friends or oomf-in-laws. I'm not them, they're responsible for their own behaviors. I'm also not responsible for their actions.**
 *  **If I'm doing something and it bothers you. Tell me. I can't read minds or body language over a device. I wish I could.**
 * **I Hide Freely** it's usually 15min to 24hrs.
