@@ -23,6 +23,7 @@
 * **Do not drag me into drama that isn't about me. It's not mine to begin with. That being said,** ***do not start drama with me*** **that is about my friends or oomf-in-laws. I'm not them, they're responsible for their own behaviors. I'm also not responsible for their actions.**
 *  **If I'm doing something and it bothers you. Tell me. I can't read minds or body language over a device. I wish I could.**
 *  Vedrfolnir x Song Feng Truther
+*  I'm **OPEN** to Yume Ships unless you're **overly toxic about it.** Though I normally make/sit as Cosplays for my friend's Yume Ships.
 * **I Hide Freely** it's usually 15min to 24hrs.
 
 <p align="center">
