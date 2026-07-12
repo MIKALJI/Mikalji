@@ -46,6 +46,11 @@
   <img src="https://img.shields.io/badge/DNI/AFK-ㄨ-844454?style=flat-square" />
 </p>
 
+**Cosplays May Show What Mood I'm in** if you're unsure.
+* Childe - Online - Joking and in a good mood as I use this cosplay when I'm in a playful and joking mood
+* Lu Guang - Afk 100% (W2I)
+* Zhongli - Online or Off-Tab (Occassional replies, Neutral Mood)
+* Any other cosplay is highly likely I'm off tab 
 <p align="center">
  <image src="https://github.com/user-attachments/assets/ac732301-6166-4a6e-8d6b-96cba54c0dd1">
 
