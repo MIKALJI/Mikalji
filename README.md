@@ -49,6 +49,7 @@
 **Cosplays May Show What Mood I'm in** if you're unsure.
 * Childe - Online - Joking and in a good mood as I use this cosplay when I'm in a playful and joking mood
 * Lu Guang - Afk 100% (W2I)
+* Ardashir - Neutral mood, Online most likely or off-tab on occassions.
 * Zhongli - Online or Off-Tab (Occassional replies, Neutral Mood)
 * Any other cosplay is highly likely I'm off tab 
 <p align="center">
