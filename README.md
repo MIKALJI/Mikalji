@@ -19,7 +19,7 @@
 * **Minors IWC/IWEC as I'm 18+**
 * **English Only**
 * **LINK CLICK and ARKNIGHTS FANS PLS INT!**
-* **Please do not Copy or INSPO off of my ponies.** ***I have Two Styles (Light Mode (Saturated) and Dark Mode ("Emo") as my friends call it)*** **Posting or distributing my photos of my ponies or photos of my ponies is prohibited (unless close friends)** *I will hide people who copy/Inspo hard if you don't ask for permission. I know it's just pixels, but just be unique god damn, or ask me, I'll more than likely say yes.*
+* **Please do not Copy or INSPO off of my ponies.** ***I have three Styles (Light Mode (Flashabang Saturated), Dark Mode ("Emo") as my friends call it), and Softer tone Saturated.*** **Posting or distributing my photos of my ponies or photos of my ponies is prohibited (unless close friends)** *I will hide people who copy/Inspo hard if you don't ask for permission. I know it's just pixels, but just be unique god damn, or ask me, I'll more than likely say yes.*
 * **Do not drag me into drama that isn't about me. It's not mine to begin with. That being said,** ***do not start drama with me*** **that is about my friends or oomf-in-laws. I'm not them, they're responsible for their own behaviors. I'm also not responsible for their actions.**
 *  **If I'm doing something and it bothers you. Tell me. I can't read minds or body language over a device. I wish I could.**
 *  Vedrfolnir x Song Feng Truther
